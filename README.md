@@ -1,1 +1,1 @@
-aaba arko pani same tarika le gardinu screen ma herera
+[N5 Vocabulary PDF hernu hos](n5-vocabulary.pdf)
